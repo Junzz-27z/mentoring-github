@@ -1,2 +1,2 @@
 # mentoring-github
-# hai saya yoga
+# saya manusia biasa makan nasi
